@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vallishavasuki1@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14SsbtqKohJE8XYOyQ1lpZ7tZVYKUnLPK/view?usp=sharing](https://drive.google.com/file/d/14SsbtqKohJE8XYOyQ1lpZ7tZVYKUnLPK/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/14SsbtqKohJE8XYOyQ1lpZ7tZVYKUnLPK/view?usp=sharing)
 
 - ⚡ Fun fact **Still figuring out**
 
